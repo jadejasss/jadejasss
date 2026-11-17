@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any artists  
 - 📫 How to reach me
 - Facebook: Jade Peñaflor
-- Email: jade.penaflor03@gmail.com
+- Email: jadejasmine.penaflor@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I don't know how to ride a bike
 
